@@ -1,4 +1,7 @@
 <p align="center"> 
-<img src="https://github.com/itsONLYS3X/FENTanyl/blob/ffdb1424049edef5d954de3b3688dcfcb76e1dd7/Untitled522_20250120154728.png">
+<img src="https://github.com/itsONLYS3X/FENTanyl/blob/c1ef287463da7484f31d09e9941fdd01e7461d3a/Untitled522_20250120152738.png">
   
-<p align="center"><i>"dont call me noona,"</i> <p align="right"><img src="https://github.com/itsONLYS3X/FENTanyl/blob/a2c7a023ee73e3fc86d11a438800feddc51e58a5/IMG_4023.webp">
+<p align="center">
+  <i>"Right now, if I left this place,
+<p align="center">
+  I'd have to face something even scarier."</i>
