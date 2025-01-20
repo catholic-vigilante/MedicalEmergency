@@ -1,4 +1,4 @@
 <p align="center"> 
-<img src="https://github.com/itsONLYS3X/FENTanyl/blob/7d44bcdebb556176f485b3021822f2f78a37fe12/IMG_4021.png">
+<i>" don't call me noona, "</i>
 <p align="center"> 
-<img src="B13D37BE-405A-4D79-8051-EB98565B87A3.png">
+<img src="https://github.com/itsONLYS3X/FENTanyl/blob/af001105b6471007d941992d88e530d752ff2036/Untitled522_20250120154029.png">
