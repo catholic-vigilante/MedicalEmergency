@@ -10,4 +10,4 @@
 
   <p align="center">
 <img src="https://github.com/failedCONFESSION/failedCONFESSION/blob/29c2d2c82abcab5e14d33946f456476715685813/2b70d07576aad33c116769ddf37e70acb8a40afb.gif">  <img src="https://github.com/itsONLYS3X/itsONLYS3X/blob/5ba9d1388d0565dfb14f30070483465ace9cd354/a5aa44ba901a94fea38f3a55550c61650db4d794.gif">
-<img src="https://github.com/failedCONFESSION/failedCONFESSION/blob/8ae198ae7e6a8a5fcad9510b417f1afbb8f44a1c/Untitled531_20250210184226.png">
+<img src="https://github.com/failedCONFESSION/failedCONFESSION/blob/0163482892087c72f90d0ee6a649b120bf55bae5/Untitled531_20250210184617.png">
