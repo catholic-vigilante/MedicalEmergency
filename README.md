@@ -2,7 +2,7 @@
 <img src="https://github.com/failedCONFESSION/failedCONFESSION/blob/e26374354902d2d47797f608041b29e9795a90d2/Untitled531_20250210184623.png">
   <ins>g</ins> <ins>i</ins> - <ins>h</ins> <ins>u</ins> <ins>n</ins>
 <p align="center"> 
-<img src="https://github.com/failedCONFESSION/failedCONFESSION/blob/b003f9f76d2f1ff1a6fc3fc4f3143f67e1772d16/Untitled530_20250210182939.png">
+<img src="https://github.com/failedCONFESSION/failedCONFESSION/blob/e9875b7dc1c9c79819f5b390217ca1d35d694973/Untitled530_20250210185238.png">
   
 <p align="center">
   <i>" you dont trust people because they are trustworthy ,</i>
