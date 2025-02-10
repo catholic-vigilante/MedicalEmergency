@@ -2,7 +2,7 @@
 <ins>g</ins> <ins>i</ins> - <ins>h</ins> <ins>u</ins> <ins>n</ins>
 
 <p align="center"> 
-<img src="https://github.com/itsONLYS3X/FENTanyl/blob/c1ef287463da7484f31d09e9941fdd01e7461d3a/Untitled522_20250120152738.png">
+<img src="https://github.com/failedCONFESSION/failedCONFESSION/blob/b003f9f76d2f1ff1a6fc3fc4f3143f67e1772d16/Untitled530_20250210182939.png">
   
 <p align="center">
   <i>" you dont trust people because they are trustworthy ,</i>
