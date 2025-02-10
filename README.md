@@ -1,6 +1,5 @@
 <p align="center">
-<ins>g</ins> <ins>i</ins> - <ins>h</ins> <ins>u</ins> <ins>n</ins>
-
+<img src="https://github.com/failedCONFESSION/failedCONFESSION/blob/523b063479082b09f4d439d08757f8b143e6ca5d/Untitled531_20250210184221.png"><ins>g</ins> <ins>i</ins> - <ins>h</ins> <ins>u</ins> <ins>n</ins>
 <p align="center"> 
 <img src="https://github.com/failedCONFESSION/failedCONFESSION/blob/b003f9f76d2f1ff1a6fc3fc4f3143f67e1772d16/Untitled530_20250210182939.png">
   
