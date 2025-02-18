@@ -1,9 +1,7 @@
 <p align="center">
 <img src="https://github.com/failedCONFESSION/failedCONFESSION/blob/66b3f3392593a52bae1a608f13f884c9f5b0931a/Untitled531_20250210200831.png">
- <p align="center">
-<b><ins>g</ins></b> <b><ins>i</ins></b> <b>-</b> <b><ins>h</ins></b> <b><ins>u</ins></b> <b><ins>n</ins></b>
 <p align="center"> 
-<img src="https://github.com/MedicalEmergency/MedicalEmergency/blob/a0f04582e7f51728d1f69ee547a6ba68fb831859/Untitled530_20250216202717.png">
+<img src="https://github.com/MedicalEmergency/MedicalEmergency/blob/a0f04582e7f51728d1f69ee547a6ba68fb831859/Untitled530_20250216202717.png" width= "500">
   
 <p align="center">
   <i>" you dont trust people because they are trustworthy ,</i>
