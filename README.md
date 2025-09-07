@@ -1,1 +1,1 @@
-<p align= "center"> <img src= "https://files.catbox.moe/jsz6bm.gif" width= 200>
+ <img src= "https://files.catbox.moe/jsz6bm.gif" width= 200>
